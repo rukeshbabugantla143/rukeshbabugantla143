@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rukeshbabugantla143
 - 👀 I’m interested in web development 
-- 🌱 I’m currently learning WordPress 
+- 🌱 I’m currently doing freelancling
 - 💞️ I’m looking to collaborate on Web development company 
 - 📫 How to reach me +91-6303509621
 
