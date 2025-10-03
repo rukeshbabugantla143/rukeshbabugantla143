@@ -16,7 +16,7 @@ Octocat 🐙
 - Currently working on exciting daily projects  
 - Open to collaborating on cool projects  
 - Ask me about **Web Development, React, and AI Tools**  
-- 📫 Reach me at: **rukeshbabugantla143@gmail.com**  
+- 📫 Reach me at: **rukeshbabug@gmail.com**  
 
 ---
 
